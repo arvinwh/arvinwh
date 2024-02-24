@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @arvinwh ..
+- 👋 Hi, I’m @arvinwh .
 - 👀 I’m interested in .
 - 🌱 I’m currently learning .
 - 💞️ I’m looking to collaborate on .
